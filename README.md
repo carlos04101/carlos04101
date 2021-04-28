@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @carlos04101
+- 👀 I’m interested in  aprender a programar
+- 🌱 I’m currently learning  python
+- 💞️ I’m looking to collaborate on  muitas coisas
+- 📫 How to reach me  linkedin: https://www.linkedin.com/in/carlos-daniel-verdeiro-a0755420b
